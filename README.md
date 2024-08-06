@@ -4,4 +4,4 @@
 
 
 
-use this tool for testing or do wahtever u want 😈
+i made these 2 ddos tools and i got over 10 c2 botnets tools dm me if u wanna buy discord user: alialmoed12123#7987 😈
